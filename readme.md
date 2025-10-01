@@ -1,4 +1,4 @@
-# 🇨🇳 China Travel Guide for Foreigners
+# 🇨🇳 China Travel Guide for International Friends
 
 Practical tips and essential information for foreigners traveling to China. This guide covers payment methods, transportation, and ticket purchasing for popular attractions.
 
