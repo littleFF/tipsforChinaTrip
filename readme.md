@@ -49,7 +49,7 @@ Practical tips and essential information for first visitors traveling to China. 
 
 ### Popular Attractions Requiring Advance Booking
 - **Forbidden City** (故宫)
-- **Great Wall** sections (Badaling, Mutianyu)
+- **Great Wall** sections (Mutianyu(**perfer** reason: **has Cable Car up&down**, **Fewer Crowds**, **Limited English signage and services available**), Badaling)
 - **Summer Palace** (颐和园)
 - **Temple of Heaven** (天坛)
 
